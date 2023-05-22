@@ -1,4 +1,4 @@
-Anggota:  Yulia Khairunnisa (2008107010010)
+Anggota:  Yulia Khairunnisa (2008107010010) &
           Safira (2008107010022) 
 
                             APLIKASI WISATA BANDA ACEH
